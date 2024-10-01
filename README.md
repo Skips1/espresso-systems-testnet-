@@ -61,7 +61,7 @@ Twit linki: https://twitter.com/EspressoSys/status/1537447721916698625?s=20&t=Yv
 ## Sorunlarınız için Espresso Systems Turkish kanalı: [Telegram linki](https://t.me/EspressoSystemsTurkish)
 
 
-Teşekkürler <3
+Teşekkürler <3ddd
 
 # Hesaplar:
 
